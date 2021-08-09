@@ -1,2 +1,2 @@
 # K-REBO
-Hello! I'm Bido Nakamura, High School Student in Japan
+Hello! I'm Bido, High School Student in Japan
